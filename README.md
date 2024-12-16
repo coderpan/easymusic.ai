@@ -1,5 +1,6 @@
 # EasyMusic - Best AI Music Generator & AI Song Generator
 [Home](https://easymusic.ai)
+[Twitter](https://x.com/PinPong93302)
 
 The most advanced [AI Music Generator](https://easymusic.ai/ai-music-generator) and [AI Song Generator](https://easymusic.ai/ai-song-generator) platform that transforms your ideas into professional tracks in minutes. Create custom AI-generated music and songs with state-of-the-art artificial intelligence technology.
 
