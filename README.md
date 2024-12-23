@@ -118,6 +118,9 @@ Generate AI music across all genres:
 
 Email: support@easymusic.ai
 
+## Links
+[Trustscore](https://www.scamadviser.com/check-website/easymusic.ai)
+
 ## 🔗 Essential Links
 
 - [AI Music Generator](https://easymusic.ai/ai-music-generator)
@@ -125,7 +128,6 @@ Email: support@easymusic.ai
 - [Terms of Service](/tos)
 - [Privacy Policy](/privacy-policy)
 - [Refund Policy](/refund-policy)
-
 ---
 © 2024 EasyMusic.AI - Your Professional AI Music Generator & AI Song Generator Platform. All rights reserved.
 
