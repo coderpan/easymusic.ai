@@ -120,6 +120,12 @@ Email: support@easymusic.ai
 
 ## Links
 [Trustscore](https://www.scamadviser.com/check-website/easymusic.ai)
+[Bing Search](https://bing.com/search?q=site%3Aeasymusic.ai)  
+[Yahoo Search](https://search.yahoo.com/search?p=site%3Aeasymusic.ai)  
+[Yandex Search](https://yandex.com/search/?text=site%3Aeasymusic.ai)  
+[DuckDuckGo Search](https://duckduckgo.com/?q=site%3Aeasymusic.ai)  
+[AOL Search](https://search.aol.com/search?q=site%3Aeasymusic.ai)  
+[Naver Search](https://search.naver.com/search.naver?query=site%3Aeasymusic.ai)  
 
 ## 🔗 Essential Links
 
