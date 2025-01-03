@@ -1,4 +1,4 @@
-# EasyMusic - Best AI Music Generator & AI Song Generator
+# Best AI Music Generator & AI Song Generator
 [Home](https://easymusic.ai)
 [Twitter](https://x.com/PinPong93302)
 
