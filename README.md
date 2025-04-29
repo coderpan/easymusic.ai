@@ -119,6 +119,7 @@ Generate AI music across all genres:
 Email: support@easymusic.ai
 
 ## Links
+[patreon](https://www.patreon.com/posts/how-to-create-ai-127714514)
 [Trustscore](https://www.scamadviser.com/check-website/easymusic.ai)
 [Bing Search](https://bing.com/search?q=site%3Aeasymusic.ai)  
 [Yahoo Search](https://search.yahoo.com/search?p=site%3Aeasymusic.ai)  
