@@ -139,3 +139,5 @@ Email: support@easymusic.ai
 © 2024 EasyMusic.AI - Your Professional AI Music Generator & AI Song Generator Platform. All rights reserved.
 
 #AIMusic #AISongGenerator #AIMusicGenerator #AIGeneration #MusicAI #AIComposer
+[patreon collection](https://www.patreon.com/collection/1494892)
+
