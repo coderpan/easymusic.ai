@@ -140,4 +140,5 @@ Email: support@easymusic.ai
 
 #AIMusic #AISongGenerator #AIMusicGenerator #AIGeneration #MusicAI #AIComposer
 [patreon collection](https://www.patreon.com/collection/1494892)
+[Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
 
