@@ -142,3 +142,5 @@ Email: support@easymusic.ai
 [patreon collection](https://www.patreon.com/collection/1494892)
 [Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
 
+[Unlock Your Musical Potential: EasyMusic.AI’s V6.0 Revolutionizes AI-Generated Music​](https://www.patreon.com/posts/129416632)
+
