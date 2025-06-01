@@ -144,4 +144,6 @@ Email: support@easymusic.ai
 
 [Unlock Your Musical Potential: EasyMusic.AI’s V6.0 Revolutionizes AI-Generated Music​](https://www.patreon.com/posts/129416632)
 [Revolutionize Your Music Creation: Introducing EasyMusic.AI’s Groundbreaking Lyrics & Audio Editing Tool](https://www.patreon.com/posts/130157413)
+[Break Through Writer's Block Forever: EasyMusic.AI Unleashes Multilingual AI Lyrics Generator for Effortless Songwriting](https://www.patreon.com/posts/130388497)
+
 
