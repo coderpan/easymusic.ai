@@ -152,4 +152,6 @@ Email: support@easymusic.ai
 [Top Free AI Music Generators of 2025 Ranke)](https://egolinks.online/@easymusic)
 [The Best Free AI Music Generator](https://crozdesk.com/software/easymusic-ai)
 [OpenArt Workflows](https://openart.ai/workflows/-/-/Buakrz7vU7wQvtx79l8R)
+[OpenArt Workflows For EasyMusic.AI](https://openart.ai/workflows/fox_young_48/music-video-generator/OFG1thsX8vbjRRt7ITIg)
+[OpenArt Workflows For iLovesong.ai](https://openart.ai/workflows/centipede_staid_11/easymusicai-ai-music-generation-workflow-lyrics-to-song/Buakrz7vU7wQvtx79l8R)
 
