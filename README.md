@@ -151,5 +151,5 @@ Email: support@easymusic.ai
 [AI Music Generator Rank List 2025](https://list.ly/list/CWOr-ai-music-generator-rank-list)
 [Top Free AI Music Generators of 2025 Ranke)](https://egolinks.online/@easymusic)
 [The Best Free AI Music Generator](https://crozdesk.com/software/easymusic-ai)
-
+[OpenArt Workflows](https://openart.ai/workflows/-/-/Buakrz7vU7wQvtx79l8R)
 
