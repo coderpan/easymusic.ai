@@ -154,4 +154,5 @@ Email: support@easymusic.ai
 [OpenArt Workflows](https://openart.ai/workflows/-/-/Buakrz7vU7wQvtx79l8R)
 [OpenArt Workflows For EasyMusic.AI](https://openart.ai/workflows/fox_young_48/music-video-generator/OFG1thsX8vbjRRt7ITIg)
 [OpenArt Workflows For iLovesong.ai](https://openart.ai/workflows/centipede_staid_11/easymusicai-ai-music-generation-workflow-lyrics-to-song/Buakrz7vU7wQvtx79l8R)
+[Blog For kaivormusic.ai](https://coderpan.github.io/kaivormusic-ai-blog/)
 
